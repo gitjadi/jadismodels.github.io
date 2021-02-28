@@ -1,2 +1,2 @@
-# jadisstuff.github.io
+# jadismodels.github.io
  
